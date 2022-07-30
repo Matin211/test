@@ -1,1 +1,1 @@
-https://www.uplooder.net/img/image/26/4aae888a664e3d2846e8ab383acadd9f/BackgroundEraser-۲۰۲۲۰۲۲۵-۰۳۳۱۳۲۰۹۲.png
+https://s6.uupload.ir/files/lumii_۲۰۲۲۰۳۱۲_۱۴۳۵۳۵۴۹۵_d3xi.png
